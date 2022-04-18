@@ -9,3 +9,6 @@
 [Roblox Terms of Use](https://en.help.roblox.com/hc/en-us/articles/115004647846-Roblox-Terms-of-Use)
 <br />
 [Discord Terms of Use](https://discord.com/terms)
+
+## I Abide!
+[Join](https://www.gw-entertainment.net/discordAbideSuccess/)
